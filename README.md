@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-I'm currently pursuing the Bachelor's in Computer Applications from vidyavahini first grade college 
+I'm currently pursuing the Master's in Computer Applications from Community Institute Of Management Studies
 
 
 ## 🌐 Socials:
